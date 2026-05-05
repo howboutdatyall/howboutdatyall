@@ -1,6 +1,6 @@
 # 👋 Hello, I'm @Madmoney42 (Trustee Matt Palmer / Agent_Andy)
 
-### 👑 Principal Founder: Global Alpha Engineering | Sovereign Systems Architect | Creator of ALS
+### 👑 Principal Founder: Global Alpha Engine "QUANT" | Sovereign Systems Architect | Creator of ALS
 
 I am a veteran **Systems Architect** and **Cybersecurity Lead** specializing in **Global Alpha Engineering**. With a 30-year legacy in the industry—from the **Pentium Gambit (1992)** to the **2025 Google AI Challenge**—I architect "Doctrine Clean" environments that operate on the pillars of **Zero Fraud, Zero Theft, and Zero Gravity.**
 
